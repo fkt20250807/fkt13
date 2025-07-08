@@ -10,4 +10,4 @@
 
 本站每天更新最新人妻精品影视，涵盖高清无码和中文字幕内容，分类细致，满足不同观众需求。无须注册，无广告干扰，确保纯净流畅的观看体验。还有热门榜单与网友推荐，助你轻松发现优质作品，提升观影乐趣。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link]( https://github.com/fkt20250807/fkt13 ）</span>
